@@ -1,3 +1,3 @@
 # Lovro
 Mathos student
-Github account for future project
+Github account for future project 😁
